@@ -12,4 +12,3 @@ Say goodbye to hours of manual SEO work and hello to smarter, faster results!
 
 Try it now and see your website soar ⬆️: https://seoai.cloud
 
-![Uploading ChatGPT Image Nov 11, 2025, 03_38_35 PM.png…]()
